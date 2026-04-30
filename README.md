@@ -1,5 +1,6 @@
 # GuttPukrr
-MEATMEDEAD.
+
+// MEATMEDEAD.
 
 I am most notably found on social platforms such as Discord, Ponytown, or Tiktok. I am not hugely active, but I stick around! 
 I do not tend to interact first unless I know you, so please don't be hesitant to interact! I promise, I won't bite! <3
